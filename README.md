@@ -13,3 +13,10 @@ a. EDX
 https://www.edx.org/course/introduction-probability-science-mitx-6-041x-2
 
 
+
+DEEP LEarning:
+https://www.youtube.com/watch?v=yEUKougrRSk
+
+
+
+
